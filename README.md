@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Cadmus
-- 👀 I’m interested in bicycke
+- 👀 I’m interested in bicycle
 - 🌱 I’m currently learning IA, Project management at coursera.
 - 📫 
 
